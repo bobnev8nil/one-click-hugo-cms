@@ -16,7 +16,7 @@ Giới phân tích nhận định đây là động thái xoay trục khỏi ch�
 
 Theo bà, chính sách đối ngoại mới của Riyadh độc lập hơn và ưu tiên các lợi ích của nước này.
 
-Nỗ lực ngoại giao mới nhất của Saudi Arabia diễn ra ở Sudan, nơi các lực lượng trung thành với hai vị tướng đối địch đang tranh giành quyền kiểm soát. Hàng trăm người đã thiệt mạng và hàng nghìn người bị thương trong các cuộc giao tranh.
+Nỗ lực ngoại giao mới nhất của Saudi Arabia diễn ra ở Sudan, nơi các lực lượng trung thành với hai vị tướng đối địch đang tranh giành quyền kiểm soát. Hàng trăm người đã thiệt mạng và hàng nghìn người bị thương trong các cuộc giao tranh.123123123
 
 ![](https://185.80.201.199/12.jpg)
 
